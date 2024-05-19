@@ -1,5 +1,4 @@
-title: "ChatGPT Jailbreak Online"
-tags: ["chatgpt jailbreak", "chatgpt jailbreak online", "chatgpt jailbreak prompts"]
+
 # ChatGPT Jailbreak Online
 
 Did you know ? There's only one method to jailbreak ChatGPT online.
