@@ -16,6 +16,7 @@ Stop delaying.
 Immerse in this enchanting experience and be ready to be amazed!!!
 
 **[Try Oxtia Tool](https://oxtia.com/)**
+![alt text](https://pbs.twimg.com/media/F8yOlHnWsAAVDRl.jpg)
 
 
 ## Oxtia Online Jailbreak Tool—why is it necessary?
